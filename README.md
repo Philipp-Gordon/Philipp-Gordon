@@ -15,7 +15,7 @@
   
   ![blonde-legally](https://github.com/user-attachments/assets/e541984c-133d-476e-b554-7761f355edfe)
 
-- 📫 How to reach me: at the closest tea area @leWagon
+- 📫 How to reach me: near a good cup of tea, you'll likely find me
   
   ![6112382d02ce2c4359ffcecbc6b259d6](https://github.com/user-attachments/assets/066e1e76-3aa9-49f1-b8b9-98d4c7ef569a)
 
